@@ -28,3 +28,9 @@
 <p align="right">.</p>
 
 --- 
+
+<p align="right"> $\color{#fff238}\text{Sometimes not that active in PT, but i will try to be online if possible.}$ </p>
+<p align="right"> $\color{#708090}\text{It's either because I'm busy with schoolwork or some other reason.}$ </p>
+
+> <img width="99" height="56" src="https://github.com/user-attachments/assets/31b0df21-0286-48d3-818a-15d1f29d692b" alt="Image" /> Oh right, Usually near the bakery as Doombringer or as Sorcus. <br>
+Feel free to Cuddle + Hug!
