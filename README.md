@@ -5,20 +5,9 @@
 <details>
   <summary><b>I'm glad I could meet you all</b></summary>
   
-  [@Sora](https://github.com/HeightsSwordMaster) , [@Leo <3](https://github.com/Koushiro-Izzy) , [@Six](https://github.com/loveruffle)
+  [@Sora](https://github.com/HeightsSwordMaster) , [@Leo <3](https://github.com/Koushiro-Izzy) , [@Six](https://github.com/loveruffle) , and $\color{#a5d6ff}\text{@Tammy}$ !
   
 ㅤㅤYou guys are the most amazing people i've ever met, especially Leo. ^^ <img align="left" width="400" height="300" src="https://github.com/user-attachments/assets/e4252705-b0ff-4823-ab0c-4780ccbf6f20" alt="Image"/> </br>
-ㅤrrraf </br>
-ㅤaf </br>
-ㅤwa </br>
-ㅤf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
-ㅤwafwaf </br>
 </br>
 </br>
 </br>
@@ -30,6 +19,7 @@
 </br>
 </br>
 </br>
+
 </details>
 
 
