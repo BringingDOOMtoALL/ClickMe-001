@@ -28,7 +28,3 @@
 <p align="right">.</p>
 
 --- 
-
-
-
-<img align="left" src="pathto/myimage.png" alt="My Image">
