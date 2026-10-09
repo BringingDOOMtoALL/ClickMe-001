@@ -7,9 +7,18 @@
   
   [@Sora](https://github.com/HeightsSwordMaster) , [@Leo <3](https://github.com/Koushiro-Izzy) , [@Six](https://github.com/loveruffle)
   
-ㅤㅤYou guys are wonderful people i've ever met, especially Leo. <img align="left" width="400" height="300" alt="Image" src="https://github.com/user-attachments/assets/e4252705-b0ff-4823-ab0c-4780ccbf6f20" />
-</br>
-</br>
+ㅤㅤYou guys are the most amazing people i've ever met, especially Leo. ^^ <img align="left" width="400" height="300" src="https://github.com/user-attachments/assets/e4252705-b0ff-4823-ab0c-4780ccbf6f20" alt="Image"/> </br>
+ㅤrrraf </br>
+ㅤaf </br>
+ㅤwa </br>
+ㅤf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
+ㅤwafwaf </br>
 </br>
 </br>
 </br>
@@ -29,3 +38,7 @@
 <p align="right">.</p>
 
 --- 
+
+
+
+<img align="left" src="pathto/myimage.png" alt="My Image">
